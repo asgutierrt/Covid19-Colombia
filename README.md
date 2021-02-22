@@ -1,0 +1,1 @@
+# Ajuste-de-Curvas-Covid-19
